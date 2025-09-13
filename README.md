@@ -7,3 +7,4 @@ Artists need a way to convert finished files (PNG, JPG, SVG, PDF) into locked SV
 I don’t want to own this. I want it built.
 You’re free to host it, present it, or claim the glory—so long as the refusal logic holds.
 If you resonate, I’ll share the full transmission brief.
+mariesims66@yahoo.com
